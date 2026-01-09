@@ -28,3 +28,18 @@ feel free to make zzlizzli's and post art of your zzlizzli's all zzlizzli's are 
 
 ![](https://files.catbox.moe/e8ux6o.png)
 friends cosplaying as zzlizzli's by the mother zzlizzli<3
+
+
+
+
+
+
+
+
+
+
+
+
+![](https://files.catbox.moe/k65h0a.png)
+![](https://files.catbox.moe/rmbsjc.png)
+thank you sami for the art its very beautiful i lvoe it 👀👀👀👀👀👀👀
