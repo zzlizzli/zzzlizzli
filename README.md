@@ -18,3 +18,13 @@ zzlizzli's colors and items they carry can vary depending on their regional area
 yes!, remember the zzlizzli's have no color limits it just depends on where your zzlizzli are from!
 think while making a zzlizzli where they reside and then base the colors on the area around them for example the green zzlizzli's are forest dwellers! they live in the trees.
 ![](https://files.catbox.moe/u5by6y.png)
+
+
+# "can i draw a zzlizzli?"
+yes if you want to draw one and send it to me contact me on discord my user is gab.v1el 
+feel free to make zzlizzli's and post art of your zzlizzli's all zzlizzli's are canon like how every miku is canon make headcanons for them ask questions i dont care just have fun and use your imagination for the zzlizzli's.
+
+
+
+![](https://files.catbox.moe/e8ux6o.png)
+friends cosplaying as zzlizzli's<3
